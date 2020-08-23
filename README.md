@@ -1,0 +1,1 @@
+Brightness from the lemon complements the sharp parmesan and balances the creaminess of the milk in the sauce. The shape of the fusilli is great, holding sauce in its crooks and crevices. Finally, any potential heaviness in this sauce/pasta combination is lightened by the vegetables in the dish: fresh tomatoes and peppery but tender baby arugula.
